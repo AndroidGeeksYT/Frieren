@@ -14,6 +14,7 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 - [📺EP1-4: The Journey's End, It didn't have to be magic, Killing Magic, The Land Where the Souls Rest](https://youtu.be/7JUTF_faWKE?si=H4QrEW0DfQwsg0_t)
 - [📺EP5: Phantoms of the Dead](https://youtu.be/0Z_BWOEZgVY?si=kNc2YHy4mRfZXN6V)
 - [📺EP6: The Hero of the Village](https://youtu.be/3mdePwWGNvU?si=Brmd_zVct4XnGNw0)
+- [📺EP7: Like a Fairy Tale](https://youtu.be/83kleurzdAQ?si=chb7Hdgrw3kNmGac)
 
 # Credits
 
