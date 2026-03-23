@@ -18,6 +18,7 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 - [📺EP8: Frieren the Slayer](https://youtu.be/5Ra3tjHqwdE?si=DKp5LVH9z0ixpFvQ)
 - [📺EP9: Aura the Guillotine](https://youtu.be/TUVw6Ouyjl4?si=qxjVOdNdRR3Kq0sw)
 - [📺EP10: A Powerful Mage](https://youtu.be/F5micLL6Ke0?si=YWAipQwplYn-W4uy)
+- [📺EP11: Winter in the Northern Lands](https://youtu.be/arfA9EjkhKI?si=gxXrqYKUX53QAUOw)
 
 # Credits
 
