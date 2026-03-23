@@ -15,6 +15,7 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 - [📺EP5: Phantoms of the Dead](https://youtu.be/0Z_BWOEZgVY?si=kNc2YHy4mRfZXN6V)
 - [📺EP6: The Hero of the Village](https://youtu.be/3mdePwWGNvU?si=Brmd_zVct4XnGNw0)
 - [📺EP7: Like a Fairy Tale](https://youtu.be/83kleurzdAQ?si=chb7Hdgrw3kNmGac)
+- [📺EP8: Frieren the Slayer](https://youtu.be/5Ra3tjHqwdE?si=DKp5LVH9z0ixpFvQ)
 
 # Credits
 
