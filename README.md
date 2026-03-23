@@ -19,6 +19,7 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 - [📺EP9: Aura the Guillotine](https://youtu.be/TUVw6Ouyjl4?si=qxjVOdNdRR3Kq0sw)
 - [📺EP10: A Powerful Mage](https://youtu.be/F5micLL6Ke0?si=YWAipQwplYn-W4uy)
 - [📺EP11: Winter in the Northern Lands](https://youtu.be/arfA9EjkhKI?si=gxXrqYKUX53QAUOw)
+- [📺EP12: A Real Hero](https://youtu.be/qeawoON_YpA?si=g4X8n1nooWJOiubK)
 
 # Credits
 
