@@ -37,6 +37,8 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 - [📺EP16: Long-Lived Friends](https://youtu.be/wbenqvV9w64?si=VyeZA7xWzTfMqVrD)
 
+- [📺EP17: Take Care](https://youtu.be/oHcPOdoHqmk?si=V4cbfRnXHWo79PTT)
+
 # ❤️ Credits / Source
 
 💞 [Muse Asia](https://youtube.com/@museasia?si=LJLSg9-1DDpYWUZM)
