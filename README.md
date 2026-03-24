@@ -35,6 +35,8 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 - [📺EP15: Smells Like Trouble](https://youtu.be/_reYVy5d4u0?si=O7pIBiLuTYuYgi3T)
 
+- [📺EP16: Long-Lived Friends](https://youtu.be/wbenqvV9w64?si=VyeZA7xWzTfMqVrD)
+
 # ❤️ Credits / Source
 
 💞 [Muse Asia](https://youtube.com/@museasia?si=LJLSg9-1DDpYWUZM)
