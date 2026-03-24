@@ -31,6 +31,8 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 - [📺EP13: Aversion to Ones's Own Kind](https://youtu.be/ZuTg9RUgbsE?si=kN9MQJ58wpjlwNjl)
 
+- [📺EP14: Privilege of the Young](https://youtu.be/JKea6lGHt7A?si=Ay6f_s0Hz6bxS4qw)
+
 # ❤️ Credits / Source
 
 💞 [Muse Asia](https://youtube.com/@museasia?si=LJLSg9-1DDpYWUZM)
