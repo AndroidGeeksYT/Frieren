@@ -33,6 +33,8 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 - [📺EP14: Privilege of the Young](https://youtu.be/JKea6lGHt7A?si=Ay6f_s0Hz6bxS4qw)
 
+- [📺EP15: Smells Like Trouble](https://youtu.be/_reYVy5d4u0?si=O7pIBiLuTYuYgi3T)
+
 # ❤️ Credits / Source
 
 💞 [Muse Asia](https://youtube.com/@museasia?si=LJLSg9-1DDpYWUZM)
