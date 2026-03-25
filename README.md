@@ -43,6 +43,8 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 - [📺EP19: Well-Laid Plans](https://youtu.be/VVRLa4Xhzuw?si=EE1V1boN3E4_cFZH)
 
+- [📺EP20: Necessary Killing](https://youtu.be/9Z9bEnjpLcI?si=pEDgp6UkYmKRqhjI)
+
 # ❤️ Credits / Source
 
 💞 [Muse Asia](https://youtube.com/@museasia?si=LJLSg9-1DDpYWUZM)
