@@ -39,6 +39,8 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 - [📺EP17: Take Care](https://youtu.be/oHcPOdoHqmk?si=V4cbfRnXHWo79PTT)
 
+- [📺EP18: First-Class Mage Exam](https://youtu.be/BkLginHoiyM?si=pdEgb2yUJFahhczZ)
+
 # ❤️ Credits / Source
 
 💞 [Muse Asia](https://youtube.com/@museasia?si=LJLSg9-1DDpYWUZM)
