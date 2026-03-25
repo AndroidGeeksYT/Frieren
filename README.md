@@ -49,6 +49,8 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 - [📺EP22: Future Enemies](https://youtu.be/1UPzR6r0hzQ?si=4Fwqh-NVbxGdKkX3)
 
+- [📺EP23: Conquering the Labyrinth](https://youtu.be/Mg2KUzEdlQk?si=pKvZISqLunH_3wa-)
+
 # ❤️ Credits / Source
 
 💞 [Muse Asia](https://youtube.com/@museasia?si=LJLSg9-1DDpYWUZM)
