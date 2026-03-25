@@ -47,6 +47,8 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 - [📺EP21: The World of Magic](https://youtu.be/h2APYnj0nrI?si=qGXYD9JLgoMB53tN)
 
+- [📺EP22: Future Enemies](https://youtu.be/1UPzR6r0hzQ?si=4Fwqh-NVbxGdKkX3)
+
 # ❤️ Credits / Source
 
 💞 [Muse Asia](https://youtube.com/@museasia?si=LJLSg9-1DDpYWUZM)
