@@ -51,6 +51,8 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 - [📺EP23: Conquering the Labyrinth](https://youtu.be/Mg2KUzEdlQk?si=pKvZISqLunH_3wa-)
 
+- [📺EP24: Perfect Replicas](https://youtu.be/rZ_PlCRFu60?si=-xDAporexRe8q51m)
+
 # ❤️ Credits / Source
 
 💞 [Muse Asia](https://youtube.com/@museasia?si=LJLSg9-1DDpYWUZM)
