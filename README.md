@@ -45,6 +45,8 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 - [📺EP20: Necessary Killing](https://youtu.be/9Z9bEnjpLcI?si=pEDgp6UkYmKRqhjI)
 
+- [📺EP21: The World of Magic](https://youtu.be/h2APYnj0nrI?si=qGXYD9JLgoMB53tN)
+
 # ❤️ Credits / Source
 
 💞 [Muse Asia](https://youtube.com/@museasia?si=LJLSg9-1DDpYWUZM)
