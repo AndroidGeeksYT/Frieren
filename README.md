@@ -53,6 +53,8 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 - [📺EP24: Perfect Replicas](https://youtu.be/rZ_PlCRFu60?si=-xDAporexRe8q51m)
 
+- [📺EP25: A Fatal Vulnerability](https://youtu.be/HFjKqsFvkuY?si=R6YIivb-hsY_vfAd)
+
 # ❤️ Credits / Source
 
 💞 [Muse Asia](https://youtube.com/@museasia?si=LJLSg9-1DDpYWUZM)
