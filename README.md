@@ -59,6 +59,8 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 - [📺EP27: An Era of Humans](https://youtu.be/LwLHttdqGsc?si=xnU_fpy2De6orXky)
 
+- [📺EP28: It Would be Embarassing When We Met Again](https://youtu.be/KGZjtqfza18?si=RvOxb-4EmaKgHLZw)
+
 # ❤️ Credits / Source
 
 💞 [Muse Asia](https://youtube.com/@museasia?si=LJLSg9-1DDpYWUZM)
