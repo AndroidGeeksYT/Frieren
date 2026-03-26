@@ -69,6 +69,8 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 - [📺EP1: Shall We Go, Then?](https://youtu.be/TCyohKAJ-AE?si=1ZrBKLkmRa0akOzk)
 
+- [📺EP2: The Hero of the South](https://youtu.be/yfr5oBEJLEs?si=bH1vynteEkBmcaVk)
+
 # ❤️ Credits / Source
 
 💞 [Muse Asia](https://youtube.com/@museasia?si=LJLSg9-1DDpYWUZM)
