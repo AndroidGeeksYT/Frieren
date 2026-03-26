@@ -61,11 +61,11 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 - [📺EP28: It Would be Embarassing When We Met Again](https://youtu.be/KGZjtqfza18?si=RvOxb-4EmaKgHLZw)
 
-# 🎥 Season 2
-
 <div align="center">
     <img src="https://github.com/AndroidGeeksYT/Frieren/blob/main/assets/img/frierens2.jpg"/>
 </div>
+
+# 🎥 Season 2
 
 - [📺EP1: Shall We Go, Then?](https://youtu.be/TCyohKAJ-AE?si=1ZrBKLkmRa0akOzk)
 
