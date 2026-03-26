@@ -55,6 +55,8 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 - [📺EP25: A Fatal Vulnerability](https://youtu.be/HFjKqsFvkuY?si=R6YIivb-hsY_vfAd)
 
+- [📺EP26: The Height of Magic](https://youtu.be/E0YodwMG6yE?si=gvNuUcPINMCZmjPf)
+
 # ❤️ Credits / Source
 
 💞 [Muse Asia](https://youtube.com/@museasia?si=LJLSg9-1DDpYWUZM)
