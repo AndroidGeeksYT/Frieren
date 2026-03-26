@@ -57,6 +57,8 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 - [📺EP26: The Height of Magic](https://youtu.be/E0YodwMG6yE?si=gvNuUcPINMCZmjPf)
 
+- [📺EP27: An Era of Humans](https://youtu.be/LwLHttdqGsc?si=xnU_fpy2De6orXky)
+
 # ❤️ Credits / Source
 
 💞 [Muse Asia](https://youtube.com/@museasia?si=LJLSg9-1DDpYWUZM)
