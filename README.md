@@ -61,6 +61,8 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 - [📺EP28: It Would be Embarassing When We Met Again](https://youtu.be/KGZjtqfza18?si=RvOxb-4EmaKgHLZw)
 
+---
+
 <div align="center">
     <img src="https://github.com/AndroidGeeksYT/Frieren/blob/main/assets/img/frierens2.jpg"/>
 </div>
