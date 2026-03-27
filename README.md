@@ -73,6 +73,8 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 - [📺EP2: The Hero of the South](https://youtu.be/yfr5oBEJLEs?si=bH1vynteEkBmcaVk)
 
+- [📺EP3: Somewhere She'd Like](https://youtu.be/sX0tGZt6WBg?si=RPz1j50heLLueqfq)
+
 # ❤️ Credits / Source
 
 💞 [Muse Asia](https://youtube.com/@museasia?si=LJLSg9-1DDpYWUZM)
