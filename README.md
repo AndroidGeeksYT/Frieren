@@ -75,6 +75,8 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 - [📺EP3: Somewhere She'd Like](https://youtu.be/sX0tGZt6WBg?si=RPz1j50heLLueqfq)
 
+- [📺EP4: Other People's Homes](https://youtu.be/3MN_gZSVMJ8?si=fvAwN90NiwVSrrfW)
+
 # ❤️ Credits / Source
 
 💞 [Muse Asia](https://youtube.com/@museasia?si=LJLSg9-1DDpYWUZM)
