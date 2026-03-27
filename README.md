@@ -97,6 +97,8 @@ Season 2 of Frieren: Beyond Journey's End
 
 - [📺EP5: Logistics in the Northern Plateau](https://youtu.be/xOPeqCMHJYY?si=flbYQt017PEAexfW)
 
+- [📺EP6: A Demon-Slaying Request](https://youtu.be/wlg8dONGsOY?si=-FRzpL7A4W_woWKQ)
+
 ---
 
 # ❤️ Credits / Source
