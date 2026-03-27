@@ -11,7 +11,7 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 ## 🎥 Season 1
 
-[!NOTE]
+> [!NOTE]
 > I documented this Anime here on github and all sources of the Seasons and it's Episodes are not pirated by me. It's link to a Source from [Muse Asia Youtube Channel](https://youtube.com/@museasia). Which uploads Anime Seasons and Episodes to [YouTube](https://youtube.com) for us to watch for free.
 
 - [📺EP1-4: The Journey's End, It didn't have to be magic, Killing Magic, The Land Where the Souls Rest](https://youtu.be/7JUTF_faWKE?si=H4QrEW0DfQwsg0_t)
@@ -76,7 +76,7 @@ Season 2 of Frieren: Beyond Journey's End
 
 ## 🎥 Season 2
 
-[!NOTE]
+> [!NOTE]
 > I documented this Anime here on github and all sources of the Seasons and it's Episodes are not pirated by me. It's link to a Source from [Muse Asia Youtube Channel](https://youtube.com/@museasia). Which uploads Anime Seasons and Episodes to [YouTube](https://youtube.com) for us to watch for free.
 
 - [📺EP1: Shall We Go, Then?](https://youtu.be/TCyohKAJ-AE?si=1ZrBKLkmRa0akOzk)
