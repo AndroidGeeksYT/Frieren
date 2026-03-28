@@ -2,6 +2,11 @@
     <img src="https://github.com/AndroidGeeksYT/Frieren/blob/main/assets/img/frieren.jpg"/>
 </div>
 
+<h4 align="center">
+    <a href="">Season 1</a>
+    <a href="">Season 2</a>
+</h4>
+
 ---
 
 # 📺 Frieren: Beyond Journey's End
@@ -67,45 +72,6 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 - [📺EP27: An Era of Humans](https://youtu.be/LwLHttdqGsc?si=xnU_fpy2De6orXky)
 
 - [📺EP28: It Would be Embarassing When We Met Again](https://youtu.be/KGZjtqfza18?si=RvOxb-4EmaKgHLZw)
-
----
-
-<div align="center">
-    <img src="https://github.com/AndroidGeeksYT/Frieren/blob/main/assets/img/frierens2.jpg"/>
-</div>
-
----
-
-# 📺 Frieren: Beyond Journey's End
-
-Season 2 of Frieren: Beyond Journey's End
-
----
-
-## 🎥 Season 2
-
-> [!NOTE]
-> Seasons and Episodes are from [Muse Asia](https://youtube/@museasia)
-
-- [📺EP1: Shall We Go, Then?](https://youtu.be/TCyohKAJ-AE?si=1ZrBKLkmRa0akOzk)
-
-- [📺EP2: The Hero of the South](https://youtu.be/yfr5oBEJLEs?si=bH1vynteEkBmcaVk)
-
-- [📺EP3: Somewhere She'd Like](https://youtu.be/sX0tGZt6WBg?si=RPz1j50heLLueqfq)
-
-- [📺EP4: Other People's Homes](https://youtu.be/3MN_gZSVMJ8?si=fvAwN90NiwVSrrfW)
-
-- [📺EP5: Logistics in the Northern Plateau](https://youtu.be/xOPeqCMHJYY?si=flbYQt017PEAexfW)
-
-- [📺EP6: A Demon-Slaying Request](https://youtu.be/wlg8dONGsOY?si=-FRzpL7A4W_woWKQ)
-
-- [📺EP7: The Divine Revolte](https://youtu.be/3qoYtA6cXdc?si=OEcu0QSeszFhTDxq)
-
-- [📺EP8: A Magnificent End](https://youtu.be/gOXHQYjsmQ8?si=-8T8ubzCgwroNCKE)
-
-- [📺EP9: Himmel's Memoirs](https://youtu.be/Ad5QIMKYLS0?si=bE_mjlqr06Km7vLG)
-
-- [📺EP10: A Beautiful Sight](https://youtu.be/ZWUFiSdzcjI?si=hEIbmFM6tsRYOB5f)
 
 ---
 
