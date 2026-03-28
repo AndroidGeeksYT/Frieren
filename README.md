@@ -99,6 +99,8 @@ Season 2 of Frieren: Beyond Journey's End
 
 - [📺EP6: A Demon-Slaying Request](https://youtu.be/wlg8dONGsOY?si=-FRzpL7A4W_woWKQ)
 
+- [📺EP7: The Divine Revolte](https://youtu.be/3qoYtA6cXdc?si=OEcu0QSeszFhTDxq)
+
 ---
 
 # ❤️ Credits / Source
