@@ -105,6 +105,8 @@ Season 2 of Frieren: Beyond Journey's End
 
 - [📺EP9: Himmel's Memoirs](https://youtu.be/Ad5QIMKYLS0?si=bE_mjlqr06Km7vLG)
 
+- [📺EP10: A Beautiful Sight](https://youtu.be/ZWUFiSdzcjI?si=hEIbmFM6tsRYOB5f)
+
 ---
 
 # ❤️ Credits / Source
