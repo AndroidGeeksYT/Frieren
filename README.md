@@ -5,7 +5,7 @@
 <h4 align="center">
     <a href="https://github.com/AndroidGeeksYT/Frieren/blob/main/README.md">Season 1</a>
     ·
-    <a href="https://github.com/AndroidGeeksYT/Frieren/blob/main/season_2.md">Season 2</a>
+    <a href="https://github.com/AndroidGeeksYT/Frieren/blob/main/season%202/season_2.md">Season 2</a>
 </h4>
 
 ---
