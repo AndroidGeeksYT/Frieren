@@ -103,7 +103,7 @@ Season 2 of Frieren: Beyond Journey's End
 
 - [📺EP8: A Magnificent End](https://youtu.be/gOXHQYjsmQ8?si=-8T8ubzCgwroNCKE)
 
-- [📺EP9: Himmel's Memoirs](https://youtu.be/gOXHQYjsmQ8?si=-8T8ubzCgwroNCKE)
+- [📺EP9: Himmel's Memoirs](https://youtu.be/Ad5QIMKYLS0?si=bE_mjlqr06Km7vLG)
 
 ---
 
