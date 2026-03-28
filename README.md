@@ -19,7 +19,7 @@ During their decade-long quest to defeat the Demon King, the members of the hero
 
 ---
 
-## 🎥 Season 1
+# 🎥 Season 1
 
 > [!NOTE]
 > Seasons and Episodes are from [Muse Asia](https://youtube/@museasia)
