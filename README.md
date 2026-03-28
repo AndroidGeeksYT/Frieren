@@ -101,6 +101,8 @@ Season 2 of Frieren: Beyond Journey's End
 
 - [📺EP7: The Divine Revolte](https://youtu.be/3qoYtA6cXdc?si=OEcu0QSeszFhTDxq)
 
+- [📺EP8: A Magnificent End](https://youtu.be/gOXHQYjsmQ8?si=-8T8ubzCgwroNCKE)
+
 ---
 
 # ❤️ Credits / Source
