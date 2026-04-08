@@ -6,11 +6,14 @@
 
 # 📺 Frieren: Beyond Journey's End
 
+- **Rating:** `PG-13- Teens older or older`
+- **Genre:** `Adventure` `Drama` `Fantasy` `Shounen`
+
 Season 2 of Frieren: Beyond Journey's End
 
 ---
 
-## 🎥 Season 2
+# 🎥 Season 2
 
 > [!NOTE]
 > Seasons and Episodes are from [Muse Asia](https://youtube/@museasia)
